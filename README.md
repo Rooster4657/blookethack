@@ -1,2 +1,2 @@
 # blookethack
-glizzys hacks not mine...
+Blooket Hacks
